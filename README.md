@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @lalit702
+- lalitpawar72901@gmail.com
